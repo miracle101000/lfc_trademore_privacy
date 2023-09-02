@@ -55,6 +55,6 @@ Our privacy policy comprehensively discloses how the App accesses, collects, use
 - Secure data handling procedures for personal and sensitive user data.
 - Developer's data retention and deletion policy.
 
-For any questions or concerns regarding this Privacy Policy, please contact us at [contact information].
+For any questions or concerns regarding this Privacy Policy, please contact us at okolomiracle76@outlook.com.
 
 By using the LFC TRADEMORE MEGACITY Church App, you acknowledge that you have read, understood, and agreed to the collection, use, and disclosure of your personal information as described herein.
